@@ -1,1 +1,1 @@
-In this Folder alle Logos for the Certified Projects are stored. Copyright by the correspondig Projects!
+In this Folder all the Logos for the certified Projects to be stored. Copyright by the correspondig Projects!
